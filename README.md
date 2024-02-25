@@ -1,0 +1,2 @@
+# ngocnhang
+powerful and strong
